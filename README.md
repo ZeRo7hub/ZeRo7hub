@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ZeRo7hub
+- 👋 Hi, I’m ZeRo7
 - 👀 I’m interested in everything
 
 <!---
